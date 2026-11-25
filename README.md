@@ -1,1 +1,0 @@
-# kisanfriendly.app
